@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Jackz602
-- 👀 I’m interested in ... 3D-printing and codeing
+- 👀 I’m interested in ... 3D-printing, Coding and hacking
 - 🌱 I’m currently learning ... Codeing
 - 💞️ I’m looking to collaborate on ... Not sure
 - 📫 How to reach me ... Discord JACK#0295
